@@ -13,19 +13,3 @@
 
 
 
-
-
-
-
-
-**Created By:**
->Marjuk Ahmed Siddiki
-
->Computer Science and Engineering
-
->Daffodil International University
-
-
-
-
-**Connect:**[Linkedin](https://www.linkedin.com/in/marjukahmed)
